@@ -1,4 +1,5 @@
 ### Bem Vindo ao meu perfil!! Eu Sou o Gustavo Yuri👋
+Meu Linkedin: https://www.linkedin.com/in/gustavoyuri/
 
 ##
 
